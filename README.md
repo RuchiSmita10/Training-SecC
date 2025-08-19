@@ -1,1 +1,3 @@
-# Training-SecC
+NAME-RUCHI SMITA PARIDA
+PHONENO-7873475984
+EMAIL_ID-ruchismitaparida10@gmail.com
